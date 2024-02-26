@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @l-inglis
+- 👀 I’m interested in reading & knitting
+- 🌱 I’m currently learning SQL basics
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: i have no idea what i'm doing
